@@ -30,3 +30,19 @@ Strong attention to detail and excellent problem-solving skills. Fluent in Russi
 11 years in secondary school   
 *School number 15* - Urgench, Uzbekistan  
 *September 2013 - May 2024*
+
+---
+
+## Languages
+
+- Uzbek: Native (C2)
+- Russian: Fluent (C1)
+- English: Proficient (IELTS 6.5)
+
+---
+
+## Additional Information
+
+- Hobbies: Reading, Coding, Playing Football
+
+---
