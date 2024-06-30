@@ -43,6 +43,6 @@ Strong attention to detail and excellent problem-solving skills. Fluent in Russi
 
 ## Additional Information
 
-- Hobbies: Reading, Coding, Playing Football, MMA
+- Hobbies: Reading, Coding, Playing Football, MMA, English
 
 ---
