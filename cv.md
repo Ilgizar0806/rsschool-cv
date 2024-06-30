@@ -11,3 +11,22 @@ Address: Bahtliy Oilalar, 9 uy 9 kv
 ## Professional Summary
 
 Strong attention to detail and excellent problem-solving skills. Fluent in Russian (C1) and proficient in English (IELTS 6.5).
+
+---
+
+
+## Skills
+
+- Microsoft Office Suite (Excel, Word, PowerPoint)
+- Attention to Detail
+- Problem-Solving
+- Communication
+- Time Management
+
+---
+
+## Education
+
+11 years in secondary school   
+*School number 15* - Urgench, Uzbekistan  
+*September 2013 - May 2024*
